@@ -1,2 +1,2 @@
 # hardwork asks for great things
-# small change can imoact great disaster..
+# small change can impact great disaster..
